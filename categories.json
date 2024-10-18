@@ -1,21 +1,15 @@
 [
   {
-    "id": "17th-century",
-    "name": "17th Century",
-    "description": "",
-    "wordpressId": 19
-  },
-  {
     "id": "17th-century-british-history",
     "name": "17th Century",
     "description": "",
     "wordpressId": 429
   },
   {
-    "id": "18th-century-german-history",
-    "name": "18th Century",
+    "id": "17th-century",
+    "name": "17th Century",
     "description": "",
-    "wordpressId": 346
+    "wordpressId": 19
   },
   {
     "id": "18th-century",
@@ -30,16 +24,10 @@
     "wordpressId": 309
   },
   {
-    "id": "19th-century-german-history",
-    "name": "19th Century",
+    "id": "18th-century-german-history",
+    "name": "18th Century",
     "description": "",
-    "wordpressId": 345
-  },
-  {
-    "id": "19th-century",
-    "name": "19th Century",
-    "description": "",
-    "wordpressId": 21
+    "wordpressId": 346
   },
   {
     "id": "19th-century-british-history",
@@ -52,6 +40,30 @@
     "name": "19th Century",
     "description": "",
     "wordpressId": 347
+  },
+  {
+    "id": "19th-century-german-history",
+    "name": "19th Century",
+    "description": "",
+    "wordpressId": 345
+  },
+  {
+    "id": "19th-century",
+    "name": "19th Century",
+    "description": "",
+    "wordpressId": 21
+  },
+  {
+    "id": "20th-century-german-history",
+    "name": "20th Century",
+    "description": "",
+    "wordpressId": 350
+  },
+  {
+    "id": "20th-century-spanish-history",
+    "name": "20th Century",
+    "description": "",
+    "wordpressId": 423
   },
   {
     "id": "20th-century-austrian-history",
@@ -70,18 +82,6 @@
     "name": "20th Century",
     "description": "",
     "wordpressId": 22
-  },
-  {
-    "id": "20th-century-german-history",
-    "name": "20th Century",
-    "description": "",
-    "wordpressId": 350
-  },
-  {
-    "id": "20th-century-spanish-history",
-    "name": "20th Century",
-    "description": "",
-    "wordpressId": 423
   },
   {
     "id": "21st-century",
@@ -270,6 +270,12 @@
     "wordpressId": 281
   },
   {
+    "id": "royalty-and-aristocracy",
+    "name": "Royalty and Aristocracy",
+    "description": "",
+    "wordpressId": 353
+  },
+  {
     "id": "royalty",
     "name": "Royalty and Aristocracy",
     "description": "",
@@ -280,12 +286,6 @@
     "name": "Royalty and Aristocracy",
     "description": "",
     "wordpressId": 352
-  },
-  {
-    "id": "royalty-and-aristocracy",
-    "name": "Royalty and Aristocracy",
-    "description": "",
-    "wordpressId": 353
   },
   {
     "id": "sheriffs",

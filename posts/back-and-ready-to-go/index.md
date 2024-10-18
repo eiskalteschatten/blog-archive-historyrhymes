@@ -1,0 +1,1 @@
+I apologize to everyone for such a long hiatus. I haven’t decided not to blog, I just literally have not had time. I am finally back in the States and have plenty of material to post here. Get ready for some more!

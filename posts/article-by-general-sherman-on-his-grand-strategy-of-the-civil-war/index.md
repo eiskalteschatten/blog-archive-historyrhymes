@@ -1,0 +1,3 @@
+[Another blog I regularly follow](http://67thtigers.blogspot.com/2009/09/shermans-grand-strategy.html) pointed me in the direction of [a very interesting article](http://digital.library.cornell.edu/cgi/t/text/pageviewer-idx?c=cent;g=moagrp;xc=1;q1=pea%20ridge;rgn=full%20text;view=image;cc=cent;seq=592;idno=cent0035-4;node=cent0035-4%3A14;page=root;size=s;frm=frameset;) written by General William T. Sherman about his ‘Grand Strategy’ of the Civil War. It’s interesting to read Sherman’s take on it about two decades after it actually took place.
+
+I know this post is a bit short, but unfortunately I don’t have a whole lot of time to write more at the moment. Future posts will be longer and more informative.
