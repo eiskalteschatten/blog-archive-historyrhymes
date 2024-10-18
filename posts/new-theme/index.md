@@ -1,0 +1,3 @@
+I’ve decided it was time to update the look of History Rhymes to something a bit more professional-looking. This new theme I chose, called [Lightword](http://www.lightword-theme.com/) is a modern theme that supports the features of WordPress 2.9 which is what powers History Rhymes. The old theme did not support all of the new features, such as threaded comments.
+
+I will keep this theme up for a while and see how I like it while working out the kinks. The Links and Archives pages do not work quite right yet, but I will look into those soon. Meanwhile, enjoy the new theme and let me know what you think or if you think I ought to go back to the old theme.

@@ -1,0 +1,19 @@
+{
+  "id": "new-theme",
+  "title": "New Theme",
+  "status": "published",
+  "authors": [
+    "admin"
+  ],
+  "excerpt": "I&#8217;ve decided it was time to update the look of History Rhymes to something a bit more professional-looking. This new theme I chose, called Lightword is a modern theme that supports the features of WordPress 2.9 which is what powers History Rhymes. The old theme did not support all of the new features, such as &#8230; more &#x2192;\n",
+  "categories": [
+    "general",
+    "news"
+  ],
+  "tags": [
+    "History Rhymes"
+  ],
+  "publishedDate": "2010-01-23T22:14:44",
+  "updatedAt": "2010-01-23T22:14:44",
+  "wordpressId": 1155
+}

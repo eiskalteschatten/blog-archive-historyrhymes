@@ -1,0 +1,12 @@
+[![March Revolution - March 19, 1848 - Berlin](765px-Maerz1848_berlin.jpg "March Revolution - March 19, 1848 - Berlin")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2010/02/765px-Maerz1848_berlin.jpg?ssl=1)
+
+March Revolution – March 19, 1848 – Berlin.  
+*Source: [Wikipedia](http://de.wikipedia.org/w/index.php?title=Datei:Maerz1848_berlin.jpg&filetimestamp=20051011073610)*
+
+No century has played quite a role in modern Germany history like the nineteenth century. It was during this time which the area now known as Germany went from being the Holy Roman Empire which it had been for almost a millennium to what we consider to be more or less the modern boundaries of the country. It was a period of industrial and social revolution which would forever change Europe’s political landscape and have adverse effects in the first half of the following century. Socially, the German people went from being a very oppressed people to earning more freedoms through revolution and during this time life improved for the average person with the invention and implementation of many technologies made available for the first time to the general public by the increase in industry.
+
+The nineteenth century was a time of intensive change to Germany and its people. The collapse of the Holy Roman Empire created a void which allowed the rise of a new type of German empire to rise to power which would compete with the established world powers. Revolution, war and the rise of nationalism were all parts of this time period which would contribute to a new German Empire and ultimately to a unified Germany which continues to exist to this day.
+
+The next part of the series is [The Consequences of the Fall of the Holy Roman Empire (1806-1848)](https://www.historyrhymes.info/2010/03/09/nineteenth-century-german-history-consequences-of-the-fall-of-the-holy-roman-empire-1806-1848-part-1/).
+
+This entry is part of a multi-part series. You can find all of the entries either on the [Nineteenth Century German History project page](https://www.historyrhymes.info/featured/nineteenth-century-german-history/) or in [the category of the same name](https://www.historyrhymes.info/category/multi-part-series/nineteenth-century-german-history/).
