@@ -1,0 +1,5 @@
+[![It Happened in Colorado by James A. Crutchfield](https://i0.wp.com/ecx.images-amazon.com/images/I/51dfiHLfwvL._SL210_.jpg?resize=140%2C210 "It Happened in Colorado by James A. Crutchfield")](http://astore.amazon.com/historyrhymesalex-20/detail/0762745673)
+
+It Happened in Colorado by James A. Crutchfield
+
+Today I ordered a new book that looked really interesting. The book is called [*It Happened in Colorado* by James A. Crutchfield](http://astore.amazon.com/historyrhymesalex-20/detail/0762745673). I am originally from Colorado and so I figured a book on the history of Colorado would be an interesting read. James A. Crutchfield always writes interesting books about the history of the American west which also helped persuade me to buy the book when I found it. One of my favorite books by him is called [*The Way West: True Stories of the American Frontier*](http://astore.amazon.com/historyrhymesalex-20/detail/076530452X). Part of his collection of books are a whole bunch of “It Happened in \[insert state name here\]” books. I might have to invest in a few more if the one I ordered was interesting.
