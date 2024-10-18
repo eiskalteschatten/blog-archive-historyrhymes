@@ -1,0 +1,11 @@
+[![Lincoln\'s 2nd Inauguration](lincoln-inauguration.jpg)](http://historyrhymes.wordpress.com/2008/04/15/new-photos-of-lincolns-second-inauguration/lincoln-inauguration/)This evening I was browsing a few different history sites and on one of them, [AmericanHeritage.com](http://www.americanheritage.com), I ran into an interesting [article](http://www.americanheritage.com/events/articles/web/20080201-abraham-lincoln-library-of-congress-second-inaugural-photographs-Carol-Johnson.shtml) about new photos of President Lincoln’s second inauguration that were miscataloged at the Library of Congress. They were discovered by Carl Jennings of Berthoud, CO while looking for photos for a project he was working on. From [AmericanHeritage.com](http://www.americanheritage.com/events/articles/web/20080201-abraham-lincoln-library-of-congress-second-inaugural-photographs-Carol-Johnson.shtml):
+
+> Jennings was sifting through the Library of Congress’ one million archival photographs in its online Prints and Photographs catalogue when he encountered the picture captioned ‘Wash. D.C. Grand Review of Army,’ which was ostensibly of the two-day military parade in May 1865. A distinct line of soldiers with shouldered rifles stood amidst a crowd of hundreds of civilians. But, said Jennings, “the identification given didn’t jive with what I was seeing.” After viewing the photograph at a higher resolution, he saw civilians pressed closely around the soldiers, not something that would occur in a military parade.
+> 
+> A day later, Jennings returned to the online archives and discovered two more photographs, each entitled “Inauguration of President Grant.” Both showed the same trees, townhouses, and soldiers as the first photograph.
+
+The article is dated February 8, 2008, so this is a rather old story, but I hadn’t read anything about it before. There was also apparently a [CNN story](http://edition.cnn.com/2008/US/01/16/lincoln.inauguration/index.html) about it as well.
+
+You can find the full article here on [AmericanHeritage.com](http://www.americanheritage.com/events/articles/web/20080201-abraham-lincoln-library-of-congress-second-inaugural-photographs-Carol-Johnson.shtml).
+
+You can also see the photos quite clearly on [CNN’s website](http://edition.cnn.com/2008/US/01/16/lincoln.inauguration/index.html).

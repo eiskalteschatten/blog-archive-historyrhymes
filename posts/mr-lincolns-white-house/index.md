@@ -1,0 +1,3 @@
+If you are bored and have a couple of hours to kill, I highly recommend a website I have just come across called [Mr. Lincoln’s White House](http://www.mrlincolnswhitehouse.org). There is detailed information about the White House itself during his presidency as well as stories about Lincoln and happenings at the White House during his time there. There are also innumerable photos and illustrations done during that time.
+
+You can find the website here: [http://www.mrlincolnswhitehouse.org](http://www.mrlincolnswhitehouse.org).

@@ -1,0 +1,19 @@
+{
+  "id": "librarything",
+  "title": "LibraryThing",
+  "status": "published",
+  "authors": [
+    "admin"
+  ],
+  "excerpt": "So I broke down and decided to catalog my ever-growing personal library. I chose to use an online tool called LibraryThing because it seemed like a good way of keeping track of everything. There are other tools out there that I considered, many of which are offline, however most of the cost money and I &#8230; more &#x2192;\n",
+  "categories": [
+    "books",
+    "general"
+  ],
+  "tags": [
+    "Library"
+  ],
+  "publishedDate": "2009-02-27T19:59:51",
+  "updatedAt": "2009-03-12T17:54:47",
+  "wordpressId": 401
+}
