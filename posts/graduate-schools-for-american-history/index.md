@@ -1,0 +1,5 @@
+So the time has come when I need to start looking into graduate schools. This upcoming academic year will be my last as an undergraduate. I am certainly more than ready to move on.
+
+I’ve been looking into some different graduate schools around the US. A couple of my favorites so far have been the University of Missouri and Missouri State University. One reason those two have stood out is because the history faculty has research areas which pertain to my interests. Another reason is that Missouri is bursting with interesting 19th century history. Missouri has a lot of unique history in that time period from having been a border state during the Civil War and being the point from which settlers in the West would “jump off.”
+
+Although I like the two universities in Missouri, I would like to know which universities any of my readers might recommend for 19th century US history. Any suggestions?
