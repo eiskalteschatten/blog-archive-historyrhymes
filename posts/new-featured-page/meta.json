@@ -1,0 +1,16 @@
+{
+  "id": "new-featured-page",
+  "title": "New ‘Featured’ Page",
+  "status": "published",
+  "authors": [
+    "admin"
+  ],
+  "excerpt": "Just as a quick announcement, I&#8217;ve spent quite a bit of time today getting History Rhymes back up and running at full capacity after switching themes. The new theme broke some of my old pages, specifically the Archives and Links pages, but now those problems are resolved and they&#8217;ve both been slightly redesigned. Aside from &#8230; more &#x2192;\n",
+  "categories": [
+    "general"
+  ],
+  "tags": [],
+  "publishedDate": "2010-02-08T00:00:27",
+  "updatedAt": "2010-02-08T00:00:27",
+  "wordpressId": 1415
+}

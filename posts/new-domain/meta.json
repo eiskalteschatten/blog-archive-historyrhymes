@@ -1,0 +1,16 @@
+{
+  "id": "new-domain",
+  "title": "New Domain",
+  "status": "published",
+  "authors": [
+    "admin"
+  ],
+  "excerpt": "Today I registered an actual domain for History Rhymes! From now on, History Rhymes will be available at https://www.historyrhymes.info. You will not need to update your RSS feeds or anything as that will automatically be taken care of. The blog will also still be available at the old URL, so you really only need to &#8230; more &#x2192;\n",
+  "categories": [
+    "news"
+  ],
+  "tags": [],
+  "publishedDate": "2009-01-18T18:46:03",
+  "updatedAt": "2009-01-18T18:46:03",
+  "wordpressId": 287
+}

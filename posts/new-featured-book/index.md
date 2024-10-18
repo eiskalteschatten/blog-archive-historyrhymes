@@ -1,0 +1,5 @@
+[![The Earth Shall Weep: A History of Native America by James Wilson](https://i0.wp.com/ecx.images-amazon.com/images/I/51RK6SFGTFL._SL210_.jpg?resize=139%2C210 "The Earth Shall Weep: A History of Native America")](http://astore.amazon.com/histrhym-20/detail/080213680X)
+
+[*The Earth Shall Weep: A History of Native America* by James Wilson](http://astore.amazon.com/histrhym-20/detail/080213680X)
+
+I realized today that I haven’t changed the featured book for quite a long time. So, I’ve changed it to another book about Native Americans called *[The Earth Shall Weep: A History of Native America](http://astore.amazon.com/histrhym-20/detail/080213680X)* by James Wilson. It is a fascinating history of the Native Americans that gives each region of the United States its own chapter from pre-contact with Europeans, to contact and beyond. Wilson did an excellent job writing and it was an absolute pleasure to read. I highly recommend it.

@@ -1,0 +1,21 @@
+{
+  "id": "new-featured-book",
+  "title": "New Featured Book",
+  "status": "published",
+  "authors": [
+    "admin"
+  ],
+  "excerpt": "I realized today that I haven&#8217;t changed the featured book for quite a long time. So, I&#8217;ve changed it to another book about Native Americans called The Earth Shall Weep: A History of Native America by James Wilson. It is a fascinating history of the Native Americans that gives each region of the United States &#8230; more &#x2192;\n",
+  "categories": [
+    "american-history",
+    "books",
+    "indians",
+    "recommendations"
+  ],
+  "tags": [
+    "Featured Book"
+  ],
+  "publishedDate": "2009-06-18T18:06:32",
+  "updatedAt": "2013-08-24T11:11:55",
+  "wordpressId": 770
+}

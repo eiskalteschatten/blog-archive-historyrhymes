@@ -1,0 +1,10 @@
+[![Bannack: First Capital of Montana](john_bozeman_historic_highway_bannack_montana.jpg "Bannack: First Capital of Montana")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2010/02/john_bozeman_historic_highway_bannack_montana.jpg?ssl=1)
+
+Bannack: First Capital of Montana.  
+*Source: [Distinctly Montana](http://www.distinctlymontana.com/index.aspx/issues/Distinctly_Montana_Winter_2006_2007/reside/Trailblazing_Toward_El_Dorado_John_Bozemans_Historic_Highway_to_Destiny)*
+
+One of my biggest fascinations with the Old West is with what life in a Rocky Mountain mining town in nineteenth century would have been like. It would have been a life full of filth, rough characters and hard work combined with drinking, fighting and gambling as pastimes. Of course these are stereotypes of any old Wild West town, but were they really true? What was it that these brave, tough and rough souls did when they weren’t working in the mines?
+
+These and other questions will be answered in a new series I am beginning here at History Rhymes. I will be exploring several different mining towns throughout the Rocky Mountains in the coming weeks. Some are still active towns, but many are nothing but ghost towns now. I will explore how people lived, what life was generally like in the towns and I will also give a brief history of how each town came to be and, in the case of some of them, came to pass.
+
+This will be a multi-part series. You will be able to see all of the entries in this series in the [Rocky Mountain Mining Towns](https://www.historyrhymes.info/category/multi-part-series/rocky-mountain-mining-towns/) category which can also be found in the sidebar or by visiting the [Rocky Mountain Mining Towns](https://www.historyrhymes.info/featured/rocky-mountain-mining-towns/) project page.

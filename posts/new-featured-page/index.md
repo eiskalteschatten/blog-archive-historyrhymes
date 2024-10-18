@@ -1,0 +1,5 @@
+Just as a quick announcement, I’ve spent quite a bit of time today getting History Rhymes back up and running at full capacity after switching themes. The new theme broke some of my old pages, specifically the [Archives](https://www.historyrhymes.info/archives/) and [Links](https://www.historyrhymes.info/links/) pages, but now those problems are resolved and they’ve both been slightly redesigned.
+
+Aside from fixed problems, I’ve also added a new header image with the blog name and a cowboy hat. The other new item I’ve added today is [a new featured article page](https://www.historyrhymes.info/featured/). This page contains the posts that I think are the most informative and best written. If you hover over the ‘Featured’ button on the menu above, you’ll see that it also lists the multi-part series I’ve done. This new page is a great place to start reading this blog if you are unsure, overwhelmed or just want the good stuff.
+
+You can check out the featured page here: [https://www.historyrhymes.info/featured](https://www.historyrhymes.info/featured/).

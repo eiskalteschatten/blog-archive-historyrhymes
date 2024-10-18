@@ -1,0 +1,3 @@
+Today I registered an actual domain for History Rhymes! From now on, History Rhymes will be available at [https://www.historyrhymes.info](https://www.historyrhymes.info). You will not need to update your RSS feeds or anything as that will automatically be taken care of. The blog will also still be available at the old URL, so you really only need to update your bookmarks if you feel so inclined.
+
+I have some plans I want to enact with History Rhymes. Possibly in a the future I will turn it into some sort of online magazine or journal rather than just using at a blog. We will see however.
