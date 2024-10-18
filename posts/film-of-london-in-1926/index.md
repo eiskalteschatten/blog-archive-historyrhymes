@@ -1,0 +1,3 @@
+Thanks to [The History Blog](http://www.thehistoryblog.com/archives/25233), I spent a good hour or so going through old videos of England taken in the 1920s. Even though this is slightly out of the normal time range for History Rhymes, I found the videos so fascinating that I couldn’t help but share them. Of all of them, my favorite was a film made of London in 1926 — the same year Queen Elizabeth II was born — which I’ve embedded below. I absolutely love watching the people back then just imagining what it would have been like to live in such a different era to our own.
+
+For more videos and more detailed background information about them, take a look at the article posted on [The History Blog](http://www.thehistoryblog.com/archives/25233).

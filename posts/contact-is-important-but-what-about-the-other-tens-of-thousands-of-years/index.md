@@ -1,0 +1,5 @@
+I have to say that I am quite disappointed with my Native American Studies class this semester. I was (apparently naively) assuming that we would focus more on Native American culture and more on the history of the Native American peoples before first contact with the European nations. I was, however, wrong.
+
+We spent the first two weeks covering the pre-contact era and have now suddenly began talking about the first encounters with the Spanish in Mexico. I understand that there is not really a whole lot known about the Native Americans before contact, but there is certainly plenty of available knowledge out there to fill a semester-long course! Of course I also understand that the first contact with Europeans is extremely important because of the incredibly devastating effects it had on Native American culture and society, but I have already heard so much about it, that I really don’t want to spend another semester discussing it.
+
+My hope was to learn something of the vast variety of cultures in the Americas before the Europeans destroyed all of them. I have to say I am extremely disappointed in that.

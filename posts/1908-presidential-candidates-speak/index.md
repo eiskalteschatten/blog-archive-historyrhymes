@@ -1,0 +1,5 @@
+This is something I posted on another blog of mine a while ago, but I’m not entirely sure why I never posted it here. Anyway, here it goes:
+
+I found a really interesting webpage that has a lot of information about the 1908 presidential election. The two candidates were William J. Bryan and William H. Taft. The most interesting part of the website though is that it includes two speeches recorded by each of the candidates. It was the first time any presidential candidate had had his voice recorded. The recordings were done on wax cylinders and could be purchased for 35 cents (about $8 in today’s money).
+
+If you’re interested in listening to them, you can find them [here](http://www.sciencenews.org/pictures/bryantaft/bryan_taft.html). Bryan gives a speech about the financial crisis that was present at that time (and is surprisingly relevant 100 years later…) and Taft gives a speech about the “progress of the Negro” forty years after being freed from slavery.
