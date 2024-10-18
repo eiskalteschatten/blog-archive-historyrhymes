@@ -1,0 +1,29 @@
+“I have ever had the single aim of justice in view… ‘Do equal and exact justice,’ is my motto, and I have often said to the grand jury, ‘Permit no innocent man to be punished, but let no guilty man escape.'”
+
+<figure><a href="https://www.historyrhymes.info/2008/05/16/the-hanging-judge/judgeparker/" rel="attachment wp-att-60"><img decoding="async" src="judgeparker.jpg" alt="The Hanging Judge" title="Judge Parker"></a></figure>
+
+Few judges in American history have such a reputation as that of Isaac Parker. Known as “The Hanging Judge,” Judge Parker sentenced more than 160 criminals (156 men and 4 women) to death by hanging and tried a total of 13,490 cases in only 21 years on the bench.
+
+Isaac Parker was born in Ohio on October 15, 1838. He grew up on a farm, but quickly discovered he had no interest in the farm life. When he wasn’t needed on the farm, he went school at the Breeze Hill primary school. After completing primary school, Parker attended the Barnesville Classical Institute which was a private institution. In order to earn money to pay for his schooling, he worked as a teacher at a county primary school. As early as the age of 17, Parker opted to study law. His study of law consisted of a combination of self-study and an apprenticeship. He passed the bar exam in 1859 after reading law with a Barnesville attorney.
+
+After passing his bar exam, Parker moved west to St. Joseph, Missouri — a town later made famous by the infamous Jesse James. He began his legal career with the firm of Shannon and Branch which was operated by his uncle, D.E. Shannon. In 1861, after working on his own for a short while, he was elected to city attorney as a Democrat. On December 12th of the same year, he married Mary O’Toole. The couple eventually had two children: Charles and James.
+
+After three years as a Democratic city attorney, he formally split from the Democratic party and ran for county prosecutor for the Ninth Missouri Judicial District as a Republican. That fall, he served as a member of the Electoral College and cast his vote for Abraham Lincoln. Four years later, in 1868, he won his first position as a judge. Parker won a six-year term as judge for the Twelfth Missouri Circuit, although he did not finish his term.
+
+<figure><a href="https://www.historyrhymes.info/2008/05/16/the-hanging-judge/judgeisaacparker2/" rel="attachment wp-att-61"><img decoding="async" src="judgeisaacparker2.jpg" alt="Parker as Congressman" title="Isaac Parker"></a></figure>
+
+1870 saw a different turn in Parker’s career. On September 13, 1870, he was nominated as a Republican candidate for the Seventh Congressional District in Missouri. After resigning his post as judge in favor of putting more energy into his campaign, he easily won the election on November 8th after his opponent had dropped out of the race. He easily won re-election for a second term two years later. During his second term, he gained national attention for his support of legislation for the rights and fair treatment of Indian tribes in the Indian Territory, or what is now Oklahoma. In 1874, however, the political landscape in Missouri had changed and as a Republican, Parker stood no chance of winning the election again. Instead he sought a presidential appointment to public office.
+
+On March 18, 1875, Parker’s presidential appointment was granted. He was appointed by President Ulysses S. Grant to preside over the federal district court for the Western District of Arkansas as judge. With his court in Fort Smith on the border of Indian Territory and Arkansas, it was this post that would lead him to infamy. At the time of his appointment, Indian Territory was a vast area of chaos where outlaws ruled outside the jurisdiction of the “White Man’s Court.” Parker sought to bring this anarchy to an end.
+
+Parker held court for the first time on May 10, 1875. He sentenced eight men to death after being found guilty of murder. During the following summer, he would convict 15 people of murder and sentence eight of them to die by hanging on September 3rd of the same year. The sentence of one of the convicts was reduced to life in prison because of his young age and another convict was killed while attempting to escape.
+
+<figure><a href="https://www.historyrhymes.info/2008/05/16/the-hanging-judge/fortsmithgallows/" rel="attachment wp-att-62"><img decoding="async" src="fortsmithgallows.jpg" alt="Fort Smith Gallows" title="Fort Smith Gallows"></a></figure>
+
+<figure><a href="https://www.historyrhymes.info/2008/05/16/the-hanging-judge/georgemaledon/" rel="attachment wp-att-63"><img decoding="async" src="georgemaledon.jpg" alt="Executioner Maledon" title="George Maledon"></a></figure>
+
+The hangings of September 3rd gained national attention. Newspapermen traveled from all over the nation to attend the execution of the six men. Three of the felons were white, two of them Native American and one of them black. That morning, they were led to the gallows in front of a large crowd of spectators. As they sat at the back of the gallows, they were read their death warrants and asked if they had any last words. After the preliminaries had finished, they were led up to the scaffolding and nooses were placed around their necks by executioner George Maledon (pictured right). The trap was sprung and the six men died instantly at the end of the ropes.
+
+The September 3rd hangings gave Judge Parker the nickname “The Hanging Judge” and were a sign that the times of the rule of outlaws in Indian Territory was at an end. His court was condemned by his critics as the “Court of the Damned.” By the time his career was over, there would be 73 more hangings.
+
+Sick from a life of overworking and spending his last few days bedridden, Parker died of a heart attack on November 17, 1896.

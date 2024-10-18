@@ -1,0 +1,5 @@
+Well, I suppose I will begin with a little about myself. My name is Alex Seifert and I am currently an undergraduate student at the University of Wyoming who is studying German and history. My focus is primarily the history of the American west with a focus on *postbellum* 19th century America. I have plans to attend graduate school and eventually obtain a PhD.
+
+I’ve started this blog for the purpose of sharing interesting facts, pictures, etc that I find throughout the course of my research. The focus on this blog, therefore, will be American history and will mostly contain material about the 19th century postbellum period.The title itself “History Rhymes” comes from one of my favorite authors, Mark Twain. The quote goes as follows: ***“History doesn’t repeat itself, but it does rhyme.”***
+
+I hope you will enjoy this blog as much as I am going to enjoy keeping it! And don’t forget to subscribe via RSS (above, right) if you enjoy what you read!

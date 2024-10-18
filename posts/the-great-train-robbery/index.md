@@ -1,0 +1,5 @@
+While doing research for another project of mine, I stumbled across a place in the [American Memory](http://memory.loc.gov/ammem/index.html) collection from the Library of Congress where you can download the 1903 silent film, “[The Great Train Robbery](http://memory.loc.gov/cgi-bin/query/r?ammem/papr:@filreq\(@field\(NUMBER+@band\(edmp+2443s3\)\)+@field\(COLLID+edison\)\)).”
+
+It’s a very interesting 12-minute silent film that shows how three robbers are able to rob a train and all of its passengers. The film itself is interesting because it was quite groundbreaking for its time. It introduced new editing techniques such as cross cutting, double exposure composite editing, camera movement and on location shooting. You can read more about the film itself on [Wikipedia](http://en.wikipedia.org/wiki/The_Great_Train_Robbery_\(1903_film\)).
+
+You can download the short film in three different formats here: [The Great Train Robbery](http://memory.loc.gov/cgi-bin/query/r?ammem/papr:@filreq\(@field\(NUMBER+@band\(edmp+2443s3\)\)+@field\(COLLID+edison\)\)).

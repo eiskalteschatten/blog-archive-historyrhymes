@@ -1,0 +1,5 @@
+There comes a time in the history of just about every blog where the author has to pen a post apologizing for an extended absence. That time for me is now. I have not made any updates to History Rhymes for the majority of the year (since January!). Much has happened in that time and it is all primarily related to my MA. The entire year has been filled with project after project related to the university and I have literally not had any time to devote to this blog. Any writings historical in nature have been produced for the university.
+
+That being said, however, my program is finally over and I now have time and energy to devote to History Rhymes. I have a few articles in the works and many ideas for the future. I apologize for the massive delay, but I promise it will be worth the wait.
+
+– Alex

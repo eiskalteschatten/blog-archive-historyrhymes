@@ -1,0 +1,5 @@
+[![The American West by Dee Brown](the-american-west.jpg)](http://astore.amazon.com/historyrhymesalex-20/detail/0684804417/105-0300851-8036426)A couple of weeks ago I just finished reading a book called *The American West* by Dee Brown. For anyone that wants a general overview of the American west, it is a great book.
+
+It really focuses on the settlement of the American west after the Civil War, The Indian Wars, the large cattle drives, wild west towns and outlaws, etc. One of the things I liked most about it was that it contained a lot of pictures from the 19th century as well as several maps of the cattle trails, the battles between the US government and the Indian nations, etc. I highly recommend it.
+
+You can find it on [the History Rhymes Store (powered by Amazon.com)](http://astore.amazon.com/historyrhymesalex-20/detail/0684804417/105-0300851-8036426) for $11.56.
