@@ -1,0 +1,1 @@
+I am currently working on a multi-part series of articles on the Modoc Indians. I will post them here as I finish each part. They are going to cover a bit of Modoc history as well as culture and will eventually dive into their eventual submission to the US government in the late 19th century. Check back soon or subscribe to the RSS feed to read them!
