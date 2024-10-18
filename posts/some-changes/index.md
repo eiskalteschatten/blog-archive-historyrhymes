@@ -1,0 +1,12 @@
+Things have been extremely hectic as of late and unfortunately, I really haven’t had any time to post anything on History Rhymes. Graduate school is far more work-intensive than undergraduate school is and so my days have been crammed full of work. More articles will be coming soon though, that I promise.
+
+A couple of changes have also occurred in the past couple of months. First of all, the direction I am taking for my MA has changed significantly based on some research I’ve done, rendering The Old Journal (the new blog I started — see the last post before this one) practically useless. I’ve decided to shut it down and just remain focused on this blog. Today I posted all articles from The Old Journal onto History Rhymes. They are all backdated to the original time I posted them. Secondly, my research has led me more into German history than American or British history.
+
+[![Justizpalast in Munich as shown on a 19th century postcard](Munich_Justizpalast_19th_century_Postcard.jpg "Justizpalast in Munich as shown on a 19th century postcard")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2011/11/Munich_Justizpalast_19th_century_Postcard.jpg?ssl=1)
+
+Justizpalast in Munich as shown on a 19th century postcard  
+*Source: [Wikipedia](http://en.wikipedia.org/wiki/File:Munich_Justizpalast_19th_century_Postcard.jpg)*
+
+I will be focusing primarily on the history of the German aristocracy in the 19th century. This is quite a radical change in plan, but by research interests have pointed me in that direction. For this blog, I’ve already done a series on [Nineteenth Century German History](https://www.historyrhymes.info/featured/nineteenth-century-german-history/) and this, in a way, is an extension of that.
+
+I’ve setup another blog specifically to record my findings and research as it happens. It’s called [Das alte Tagebuch](http://dasaltetagebuch.blogspot.com/) (‘The Old Journal’ in German). Despite the German title, the blog will be in English. I decided to do that as opposed to clogging up History Rhymes with random bits of research. For History Rhymes, I’ve always tried to have more polished articles based on proper research, not just ramblings, musings and snippets of thought which is what I am going to be using Das alte Tagebuch for as my research progresses.
