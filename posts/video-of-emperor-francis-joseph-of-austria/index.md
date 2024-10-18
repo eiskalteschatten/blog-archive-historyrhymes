@@ -1,0 +1,5 @@
+If you cannot view this video, you need to download a browser which supports the latest HTML 5 standards. [Firefox](http://www.firefox.com) or [Apple Safari](http://www.apple.com/safari) are good and free choices. You can also download the video [here](https://www.historyrhymes.info/Emperor_Francis_Joseph_of_Austria.ogg).
+
+This is a very short, but interesting video showing Emperor Francis Joseph of Austria in 1910 or so. It really doesn’t show much other than the emperor himself and some of his subjects.
+
+***Note:** If you cannot view the video above, you need to download a browser which supports the latest HTML 5 standards. [Firefox](http://www.firefox.com) is a good and free choice. You can also download the video [here](https://www.historyrhymes.info/Emperor_Francis_Joseph_of_Austria.ogg).*

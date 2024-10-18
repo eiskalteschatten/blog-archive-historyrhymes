@@ -1,0 +1,16 @@
+{
+  "id": "temporary-outage",
+  "title": "Temporary Outage (Spambots)",
+  "status": "published",
+  "authors": [
+    "admin"
+  ],
+  "excerpt": "I apologize for the temporary outage. I&#8217;ve been getting hit pretty hard with spambots and my hosting service shut down service to my account. I think I&#8217;ve got it taken care of after doing some careful research about redirecting traffic coming from spambots so that they don&#8217;t hit the server anywhere near as hard. If &#8230; more &#x2192;\n",
+  "categories": [
+    "general"
+  ],
+  "tags": [],
+  "publishedDate": "2010-12-20T19:14:02",
+  "updatedAt": "2010-12-20T19:15:11",
+  "wordpressId": 1843
+}

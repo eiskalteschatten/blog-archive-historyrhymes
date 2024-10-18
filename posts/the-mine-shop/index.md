@@ -1,0 +1,1 @@
+So I found [an interesting shop](http://stores.shop.ebay.com/The-Mine-Shop__W0QQ_armrsZ1) on eBay. The shop is called The Mine Shop and contains all sorts of mining artifacts from the late 19th and early 20th century. I haven’t bought anything as most items are out of my budget as a college student, but it is really interesting to see some of the available artifacts.

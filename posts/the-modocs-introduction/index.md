@@ -1,0 +1,7 @@
+“Well, I tell you what I will do. I give you twenty-five head of ponies if you take my place today, as you say Heaven is such a nice place. Because I do not like to go right now.” These were the words of the Modoc chief Keintpoos – or “Captain Jack” as he was nicknamed – spoken to the Christian minister on the day that he was hanged.
+
+The story of the Modoc tribe and their eventual submission to the white Americans is quite a heroic one. Unlike many other tribes, the Modocs were generally not hostile towards the whites when they first began to invade and eventually settle on their land. For many years this pleasant relationship was sustained with the Modocs adopting several white traditions and trade between the two societies flourishing.
+
+[![An artistic depiction of the surrender of the Modocs.](surrender-of-the-modocs.jpg)](http://historyrhymes.alexseifert.com/?attachment_id=23)Unfortunately, as quite often occurs, all good things must come to an end. The US government rounded up the Modocs and displaced them to a reservation with their traditional enemies, the Klamath tribe. Relations between the US government and the Modocs quickly deteriorated. Unable to bear living with their hated enemies, a group of Modocs lead by Captain Jack left the reservation and fled to their native land near Tule Lake. Captain Jack’s flight from the reservation eventually led to military action between the Modocs and the US government and ultimately ended in defeat for the Modoc peoples.
+
+[Other parts of this series](http://historyrhymes.alexseifert.com/?cat=128)
