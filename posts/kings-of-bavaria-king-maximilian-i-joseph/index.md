@@ -1,0 +1,26 @@
+[![King Maximilian I Joseph of Bavaria](MaxI.jpg "King Maximilian I Joseph of Bavaria")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2012/01/MaxI.jpg?ssl=1)
+
+King Maximilian I Joseph of Bavaria  
+*Source: [Wikipedia](http://de.wikipedia.org/w/index.php?title=Datei:MaxI.jpg&filetimestamp=20060908205133)*
+
+King Maximilian I Joseph of Bavaria, also known as King Max I Joseph, was the very first king of Bavaria. His reign marked the beginning of a kingdom which lasted for just over a century.
+
+Born on May 27, 1756 in Schwetzingen in what is today Baden-Württemburg, Maximilian came from the Palatine lineage of the Wittelsbach family. His father, Frederick Michael of Zweibrücken-Birkenfeld, was the count of Pfalz-Birkenfeld-Bischweiler and his mother, Maria Francisca of Pfalz-Sulzbach was also of noble birth. As a child, he received a very good education under the careful guidance of his uncle, Duke Christian IV of Zweibrücken and he would carry on his interest in education throughout his life.
+
+In 1778 he received his first official title when he became Count of Rappoltstein. Upon the death of his older brother, Charles II August, in 1795 he unexpectedly inherited the duchy of Palatinate-Zweibrücken which was already under French occupation. Only four years later in 1799, he became the Prince-Elector (*Kurfürst*) of Bavaria and Count of the Palatine of the Rhine — the highest and most powerful position in Bavaria at that time — upon the death of the current Prince-Elector and Count, Charles Theodore. He was known as Maximilian IV Joseph.
+
+Between 1802 and 1803, under the guidance of his prime minister, Maximilian Graf von Montgelas, he oversaw the process of secularization whereby many monasteries, churches and other properties owned by the Catholic Church were confiscated by the state. The reason behind this was to gain access to the vast amount of wealth possessed by the church in Bavaria. While Maximilian IV Joseph oversaw this process, it was the result of gears that had been set into motion years before he came to power. They remained in secular possession until his son, King Ludwig I, gave them back to the church.
+
+[![King Maximilian I Joseph at his desk](98_Max_I_Josep_Schreibtisch_38_A3.jpg)](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2013/01/98_Max_I_Josep_Schreibtisch_38_A3.jpg?ssl=1)
+
+King Maximilian I Joseph at his desk
+
+Prince-Elector Maximilian IV Joseph became the first king of Bavaria on January 1, 1806 and resumed the name and title King Maximilian I Joseph. During Napoleon’s occupation of most of the German-speaking countries, Bavaria was one of Napoleon’s closest allies in the [Confederation of the Rhine](https://www.historyrhymes.info/2010/03/09/nineteenth-century-german-history-consequences-of-the-fall-of-the-holy-roman-empire-1806-1848-part-1/). Napoleon rewarded him with the Treaty of Pressburg of December 26, 1805 which turned Bavaria into a kingdom and gave the Wittelsbach family royal status among Europe’s elite. This gave them far more influence in the Confederation as well as in Europe as a whole.
+
+After Napoleon’s defeat and the collapse of the Confederation of the Rhine, King Maximilian I Joseph resisted any efforts of German unification that would threaten Bavaria’s independence and sovereignty. He attended the [Congress of Vienna](https://www.historyrhymes.info/2010/03/27/nineteenth-century-german-history-consequences-of-the-fall-of-the-holy-roman-empire-1806-1848-part-2/) personally rather than sending a representative to fight for Bavarian territorial rights. While he was forced the cede much land to Austria, including Salzburg, Inn and Hausruck, he gained other parts such as Palatinate which the Wittelsbach family had lost possession of during the Napoleonic Wars. Overall, Bavaria shrunk in size and the king’s influence waned slightly.
+
+During his reign as both Prince-Elector and King, he secularized many of the Catholic Church’s properties,but he also emancipated the Protestants within Bavaria. The capital city of Munich was also significantly expanded, setting the trend for growth that was to continue throughout the nineteenth century and into the early twentieth. He was extremely popular among his subjects and one of his favorite pastimes was to dress as a member of the *bourgeois*, walk through the city and engage people of all ranks in conversation. He was married twice, the result of which was a total of thirteen children – five from the first marriage and eight from the second.
+
+King Maximilian I Joseph died at Nymphenburg Palace near Munich on October 13, 1825. He was succeeded by his son, Ludwig I, whose reign would also leave an even bigger impact on the city of Munich and Bavaria as a whole.
+
+This post is part of a multi-part series about the kings of Bavaria. See the rest of the series either on the [Kings of Bavaria project page](https://www.historyrhymes.info/featured/kings-of-bavaria/) or in [the category of the same name](https://www.historyrhymes.info/category/multi-part-series/kings-of-bavaria/).
