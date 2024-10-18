@@ -1,0 +1,17 @@
+<figure><a href="https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2008/06/cowboy.jpg?ssl=1"><img loading="lazy" decoding="async" src="cowboy.jpg" alt="Cowboy" style="width:176px;height:auto" title="Cowboy"></a></figure>
+
+The history of the cowboy is a story that begins long ago. What we now think of as a uniquely American tradition is not solely American at all. Cowboy tradition first originated in mediæval Spain with the hacienda, or estate. The haciendas belonged to wealthy landowners and were generally, but not always, located on vast cattle ranches. Because of the dry climate on the Iberian Peninsula (and subsequently the dry climate of Mexico and the American southwest), a huge amount of land was required to sustain a herd of cattle due to lack of water and of sufficient forage. The need to traverse these large cattle ranches gave birth to the tradition of cattle herding on horseback. Thus the vaquero (literally, cow-man) was born.
+
+<figure><a href="https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2008/06/texas-longhorn-cow.jpg?ssl=1"><img loading="lazy" decoding="async" src="texas-longhorn-cow.jpg" alt="Texas Longhorn Cow" style="width:221px;height:auto" title="Texas Longhorn Cow"></a></figure>
+
+When the Spanish conquistadores, or conquerors, arrived on the North American continent in the fifteenth century and later colonized what is now Mexico and the southwestern United States, they brought with them this tradition as well as cattle and horses. Horses had disappeared in North America long before the arrival of the Spanish at the end of the prehistoric ice age. The cattle they brought with them would eventually evolve into today’s Texas Longhorn cattle (see the picture on the right).
+
+The vaqueros evolved further in North America bringing into it traditions from the natives as well as adaptations to the new climate of the new continent. One such difference is that in North America, the vaqueros tended to be of native origin while the hacendados (owners of the haciendas) tended to be of Spanish origin. The Mexican vaqueros were hired by the hacendados to drive cattle between New Mexico and Mexico city and later between Texas and Mexico City.
+
+In the eighteenth century, the first English-speaking traders and settlers began trickling westward from what would become the United States. The beginning of trade between Mexico and the United States also brought with it a trade in culture and language. In 1821, the first group of American settlers arrived in Texas under the leadership of Stephen F. Austin. The group wanted to take advantage of the cattle free for the taking in Texas. By that time, the Texas Longhorn had become a feral group and had multiplied until its numbers swelled. The new arrivals turned to the Mexican tradition of the vaquero to help them in their undertaking.
+
+By the 1840’s, the Santa Fe trail leading from Missouri to Santa Fe, New Mexico was a well-established and well-used route for traders and settlers alike. The route would later be used by the American Army of the West during the Mexican-American War in their quest to capture New Mexico for the United States. All along the trail, the Americans encountered the Mexican vaqueros and soon began to adopt the vaquero tradition in their own manner. Thus, the American cowboy was born.
+
+[Part 3](https://www.historyrhymes.info/?p=84)
+
+[Other parts of this series](https://www.historyrhymes.info/featured/who-were-the-real-cowboys/)
