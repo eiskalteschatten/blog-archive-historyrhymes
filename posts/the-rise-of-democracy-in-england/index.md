@@ -1,0 +1,106 @@
+[![Houses of Parliament in the Nineteenth Century](parliament.jpg)](https://www.historyrhymes.info/2016/05/12/the-rise-of-democracy-in-england/parliament/)
+
+Houses of Parliament in the Nineteenth Century  
+*Source: [C\_KHA](http://carolinekha.com/postkartenproject/houses-of-parliament)*
+
+Democracy is a term, which is universally understood today to be a style of government in which the everyday person has a say. Today’s idea of democracy, however, has taken centuries to develop and no other country has such a unique history with democracy as that of England. From the first Norman kings in the eleventh century CE, to today’s complex relationship between the English people, the monarchy and the Parliament, the process by which the English have come to govern themselves in modern times is quite a tale unto itself. England’s unique style of democracy is the by-product of centuries of development in which the struggle for authority and power between the monarchy, the aristocracy, Parliament and eventually the middle class play a significant role.
+
+When William I formally received the crown of England on Christmas Day in 1066, he probably had no idea that he would be the founder of an era of English, and later British, history that would last a thousand years into the present day. Traditionally looked upon as the founder of the modern British monarchy, William of Normandy won control of England after defeating the Anglo-Saxon king and ruler of England, Harold II, on 14 October 1066 at the Battle of Hastings.1 By this time, England had been united under a single king for just over one hundred years. When William I established himself as king, he brought with him ideas and practises of governing from the continent hitherto unknown in the British Isles. One such concept was the idea of feudalism. A minor form of feudalism already existed in England prior to William’s conquest of England, but it was nothing like the formal system that existed in continental Europe which was introduced to England when William became king.2 The introduction of feudalism gave the new monarchy an air of legitimacy in that England’s established nobility was replaced with Norman nobility who already owed liege to William.3 He used this situation to establish himself as king and to subjugate the English people under his absolute control. For two more centuries, the power of the king would go largely unchecked, practically giving the king free reign to rule as he saw fit.
+
+By the thirteenth century, however, the power, which the monarch could wield, began to wane under pressures from the English nobility. The unfortunate reign of King John (1199-1216) resulted in signing of the Magna Carta, a charter guaranteeing certain rights to the English nobility, in 1215. King John was not very adept at warfare and, as such, lost much of what had belonged to the English monarchy in France since the time of William I. His futile warfare in France was funded by heavy taxation on English barons. By 1215, the English barons had had enough of the heavy tax burdens and forced King John to sign a document that listed their demands if they were to provide the king with further funding. Their list of demands was laid out for the king in the Magna Carta, which became one of the most important documents in English history. While some of it was only relevant to thirteenth century England, many parts of the document still apply to today’s society. Such pieces guaranteed “justice of the court” for everyone and prohibited the king from taking property without compensation or consent, to name a few4. Although the Magna Carta did not mean as much to contemporaries as it did to later generations, it was the foundation upon which subsequent bills guaranteeing rights and civil liberties to the common man in England would be built.
+
+While other implementations of the Magna Carta would be introduced in the subsequent decades and centuries after King John’s reign, no other century played such an important role in the development of human rights in England as did the seventeenth century in terms of the number of important pieces of human rights legislature enacted by the English government. Seventeenth century England would see the greatest social upheaval in English history since the time of the Romans: the English civil wars. Several years of civil war would result in the creation and adoption of several new bills guaranteeing rights to the individual. The execution of King Charles I on 30 January 1649 marked the end of the Second Civil War (1647-1649), as well as the end of the English monarchy. Under the leadership of Oliver Cromwell, the English Parliament abolished the monarchy, leaving England, for the first time in centuries, without a monarch. During the ensuing reign of Parliament, not much was done for civil liberties for the common man, however, upon the reestablishment of the monarchy with the return of Charles II to England as king in 16605, it was clear that the civil wars had had an impact on the role and limitations of the monarch in England.
+
+The period after the reign of King Charles II is known as The Glorious Revolution and was a prime environment for the culturing of human rights and limitations on the English monarchy. The Bill of Rights was made into law in 1689. This important bill made the monarchy conditional on the will of Parliament, it denied the crown the ability to suspend laws without parliamentary authorisation, it prohibited the levying of taxes and maintenance of a standing army during peacetime and it gave members of parliament complete freedom of speech, among many other things.6 The Triennial Act of 1694 guaranteed that general elections would be held for Parliament every three years and the Toleration Act of 1689 granted religious tolerance to Protestants. Together, many of the acts enacted by the English government during this time formed the basis for England’s modern-day constitution and constitutions in other western democracies such as the United States.7 If the seventeenth century saw an escalation of interest in human rights, the following century would challenge the ideals formed during that time.
+
+[![Parliament in session ca. 17th-18th Century](inside_parliament.jpg)](https://www.historyrhymes.info/2016/05/12/the-rise-of-democracy-in-england/inside_parliament/)
+
+Parliament in session ca. 17th-18th Century  
+*Source: [www.parliament.uk](http://www.parliament.uk/about/living-heritage/building/palace/estatehistory/reformation-1834/commons-chamber17th-18thc-/)*
+
+Eighteenth century England was a period marked with an abrupt change of thinking when compared to that of the previous century in which the government and aristocracy’s struggle to maintain their place in the English hierarchical society would induce a surge of radical, democratic thought. No one during this time embodies this struggle so much as King George III (1760-1820). The beginning of his reign saw the transformation of England from nothing more than a European power to a world power with the defeat of France at the end of the Seven Years’ War in 1763. King George’s place as monarch of the most powerful nation on Earth suddenly meant that he was the most powerful person in the world. As such, he felt compelled to attempt to restrict the rights of his subjects. The king gathered to him a secret group of people, known as the “King’s Friends,” which used bribes to degrade the English constitution.8 He encouraged Parliament to encroach on the rights of individuals in his kingdom to the point that Parliament, especially the House of Commons, “was beginning to exercise control upon the people, whereas ‘it was designed as a control for the people’”. King George’s policy of civil rights infringement provoked radicalism towards democracy.9 In 1780, a band of reformers, led by Charles James Fox, founded the Society for Constitutional Information.10 The society published pamphlets in which they proposed a programme that demanded annual parliaments, universal suffrage, equal voting districts, abolition of the requirement of being a landowner to become a member of Parliament, payment for members of Parliament and the ability to vote by ballot for parliamentary elections. Although quickly forced to disband, the impact that the society had on England was quite strong. The movement was revived 58 years later in 1838. Factors outside of England, such as the French Revolution, also contributed to the rise of democratic thinking.
+
+When the people of France revolted against their long established monarchy, the impact of the revolution rippled across the English Channel and caused much unrest amongst the English people. The public at large suddenly became more interested in politics than they had been previously and began to demand reform in the English government. Political clubs began to form all across the nation. Clubs such as The Birmingham Club attacked the electoral system and claimed that “seats for the House of Commons were sold as openly as stalls for cattle at a fair”.11 Despite the newly generated interest in politics by the people of England, the French Revolution caused any prospects for democracy in Britain to suddenly grow dark as politicians and the king began to sternly crack down on the people to prevent such a revolt from happening in England. Fortunately for the English government, however, when Napoleon became emperor of France in 1804, it disgusted most English people and caused them to lose any interest they once may have had in revolution.12 The early nineteenth century not only saw Napoleon’s ascension as French emperor, but also wrought enormous changes in the social structure of English society.
+
+Changes brought about to England in the early nineteenth century redefined the English people’s role in society as well as England’s role in the world, ultimately contributing to the rise of a free economy and a shift towards new democratic thinking. With the end of the Napoleonic Wars at the Battle of Waterloo, England suddenly found itself as the dominant military force in Europe having defeated the other major military power of France. After the conclusion of the war, the English government began to withdraw from monitoring and interfering with local markets and the economy, allowing the free market economy to prosper, as its focus shifted to managing its vast empire. Food traders were now virtually entirely independent from government intervention and apprenticeships among the various trades were no longer controlled.13 The new free market economy allowed industry to make a phenomenal leap in progress. England’s Gross Domestic Product rose from £19,258,000 in 1792 to £105,698,000 by 1814 and exports of England’s primary industry – goods made of cotton – tripled between 1801 and 1814. Growing industry in England contributed directly to the growing wealth and influence of the lower classes. Before this time, it would have been impossible in English society for any member of the lower class to gain relatively similar status and influence of that of the hereditary gentry. The new class created for these lower class industrial entrepreneurs was what is now called the middle class.
+
+New members of the middle class possessed unheard of influence on the ancient English aristocracy and as such, intended to have their political voices heard. The wealth of the upper echelon had become dependent on the wealth of the middle class as a large number of ordinary people began to consume products created by companies initially owned and ran by the land-owning upper class. England’s cotton goods industry, for example, produced clothing for the masses and therefore depended on the ability of the middle class to purchase their products. As prominent business figures rose in the middle classes, there was a shift in the source of income for all classes. The aristocracy became dependent on rent of buildings and land; the middle class, or bourgeoisie, depended on profit made from product sales; and the working class, or proletariat, became dependent on the wages earned at places such as factories.14 By the 1820s, the power and influence of the middle class had become so prominent that Earl Grey – who, a decade later, became Prime Minister – branded the middle class as becoming “’the real and efficient mass of public opinion without whom the power of the gentry is nothing’”.15 As the working and middle classes gained more influence, their tolerance for the government’s high taxation and slow responses to domestic disasters quickly waned.
+
+In the early nineteenth century, the English government began to tax the working and middle classes heavily and, despite this, did nothing to solve some of the most prominent domestic crises of the time, which caused unrest among the lower classes. England had accrued an enormous national debt from its wars in the eighteenth century and early in the nineteenth century. The national debt was estimated to be around £861,000,000 with an annual interest rate of £32,600,000.16 To pay for this debt, the government imposed a tax of 30 shillings a head on the working class, who could barely afford food. Industrialism had brought about a mass migration to England’s cities, which were unable to keep up with the influx of new workers. Limited housing and cramped quarters cultured disease and misery among the working class in the cities. Parliament did nothing to relieve the situation, despite the desperation of it.17 Disgruntled workers began to congregate and discuss parliamentary reformation, even though the workers’ right to organise and demonstrate was directly controlled by Parliament. Workers began to no longer accept the authority of the traditional aristocracy or even of businessmen and began to question the old ways of governing. William Cobbett, a contemporary political pamphleteer and journalist, predicted in his October 5, 1816 publication, “Political Register,” that the national debt and the condition of the working class would eventually lead to much needed Parliamentary reform and a means by which the common people could express their political opinions.
+
+Immediate reform came in the form of two act of Parliament. The first of which was the Reform Act of 1832, which increased the number of seats in the House of Commons for the large industrial cities, gave more individuals among the middle class the legal right to vote18 and gave the middle class more political power than ever before. A second reform came for the working class and the paupers in the form of the New Poor Laws Amendment Act of 1834. This act reorganized local parishes into unions governed by the national Poor Law Commissioners.19 Each union had a workhouse, or sometimes called a poorhouse, to which the destitute were sent to live. This act remained the most effective means for the government to deal with the poorest people of England until the first system of welfare was introduced in 1946.
+
+The nineteenth century saw the establishment of democracy as an institution that was made a permanent part of English government and the following century saw its transformation into an intricate system through which all social classes have a voice to some extent in the way they are governed. Despite years of opposition by the monarchy and despite attempts by the gentry to make sure Parliament is run by the upper classes of society, democracy has flourished in England, paving the way for England and its people to govern themselves into the future.
+
+* * *
+
+1 Encyclopædia Britannica Online, “William I,” http://www.britannica.com/EBchecked/topic/643991/William-I.  
+2 Albert H. Putney, *Popular Law Library Vol1 Introduction To The Study Of Law Legal History*, (Cree Publishing Company, 1908).  
+3 Encyclopædia Britannica Online, “William I,” http://www.britannica.com/EBchecked/topic/643991/William-I.  
+4 Encyclopædia Britannica Online, “Magna Carta,” http://www.britannica.com/EBchecked/topic/356831/Magna-Carta.  
+5 British Civil Wars, Commonwealth and Protectorate 1638-60, “King Charles the First 1600-1649,” http://www.british-civil-wars.co.uk/biog/charles1.htm.  
+6 Encyclopædia Britannica Online, “Bill of Rights (British history),” http://www.britannica.com/EBchecked/topic/503538/Bill-of-Rights.  
+7 UK Parliament, “Parliament: The political institution,” http://www.parliament.uk/about/history/institution.cfm.  
+8 J. Holland Rose, *The Rise and Growth of Democracy in Great Britain*, (Chicago: Herbert S. Stone & Company, 1897).  
+9 Rose, 11.  
+10 Encyclopædia Britannica Online, “Society for Constitutional Information,” http://www.britannica.com/EBchecked/topic/134315/Society-for-Constitutional-Information.  
+11 Rose, 13.  
+12 Rose.  
+13 Checkland, S. G., *The Rise of Industrial Society in England: 1815-1885*, (New York: St Martin’s Press. 1964).  
+14 Evans, Eric J., *The Forging of the Modern State: Early Industrial Britain 1783-1870*, (New York: Longman Group Limited, 1983).  
+15 Evans, 168.  
+16 Rose.  
+17 Checkland.  
+18 Wikipedia.,“Reform Act 1832,” http://en.wikipedia.org/wiki/Reform\_Act\_1832.  
+19 Owston, Timothy J.,“The New Poor Law – 1834 – Britain,” http://freespace.virgin.net/owston.tj/newpoor.htm.
+
+* * *
+
+### Bibliography
+
+Alsford, Stephen. “Medieval English urban history – Growth of self-government.” (January 2008). [http://www.trytel.com/~tristan/towns/townint6.html](http://www.trytel.com/~tristan/towns/townint6.html) (accessed 10 October 2008).
+
+Bolitho, Hector. *The Reign of Queen Victoria*. New York: The Macmillan Company, 1948.
+
+British Civil Wars, Commonwealth and Protectorate 1638-60. “King Charles the First 1600-1649.” [http://www.british-civil-wars.co.uk/biog/charles1.htm](http://www.british-civil-wars.co.uk/biog/charles1.htm) (accessed 4 October 2008).
+
+Checkland, S. G.. *The Rise of Industrial Society in England: 1815-1885*. New York: St Martin’s Press. 1964.
+
+Encyclopædia Britannica Online. “Bill of Rights (British history).” [http://www.britannica.com/EBchecked/topic/503538/Bill-of-Rights](http://www.britannica.com/EBchecked/topic/503538/Bill-of-Rights) (accessed 4 October 2008).
+
+Encyclopædia Britannica Online. “Magna Carta.” [http://www.britannica.com/EBchecked/topic/356831/Magna-Carta](http://www.britannica.com/EBchecked/topic/356831/Magna-Carta) (accessed 23 September 2008).
+
+Encyclopædia Britannica Online. “Parliament.” [http://www.britannica.com/EBchecked/topic/444244/Parliament](http://www.britannica.com/EBchecked/topic/444244/Parliament) (accessed 4 October 2008).
+
+Encyclopædia Britannica Online. “Society for Constitutional Information.”  
+[http://www.britannica.com/EBchecked/topic/134315/Society-for-Constitutional-Information](http://www.britannica.com/EBchecked/topic/134315/Society-for-Constitutional-Information) (accessed 9 October 2008).
+
+Encyclopædia Britannica Online. “William I.” [http://www.britannica.com/EBchecked/topic/643991/William-I](http://www.britannica.com/EBchecked/topic/643991/William-I) (accessed 23 September 2008).
+
+Evans, Eric J.. *The Forging of the Modern State: Early Industrial Britain 1783-1870*. New York: Longman Group Limited, 1983.
+
+Gooch, R.K.. *The Government of England*. New York: D. Van Nostrand Company, Inc, 1937.
+
+Hibbert, Christopher. *Queen Victoria in her Letters and Journals*. Middlesex: Penguin Books, Ltd., 1984.
+
+Kuhn, William M.. *Democratic Royalism*. New York: St. Martin’s Press, Inc., 1996.
+
+Owston, Timothy J.. “The New Poor Law – 1834 – Britain.” [http://freespace.virgin.net/owston.tj/newpoor.htm](http://freespace.virgin.net/owston.tj/newpoor.htm) (accessed 7 December 2008).
+
+Putney, Albert H.. *Popular Law Library Vol1 Introduction To The Study Of Law Legal History*. Cree Publishing Company, 1908.
+
+Rose, J. Holland. *The Rise and Growth of Democracy in Great Britain*. Chicago: Herbert S. Stone & Company, 1897.
+
+The Official Web Site of the British Monarchy. “History of the Monarchy > The Anglo Saxon Kings.” [http://www.royal.gov.uk/output/Page14.asp](http://www.royal.gov.uk/output/Page14.asp) (accessed 23 September 2008).
+
+The Official Web Site of the British Monarchy. “History of the Monarchy > The Normans.” [http://www.royal.gov.uk/output/Page17.asp](http://www.royal.gov.uk/output/Page17.asp) (accessed 23 September 2008).
+
+Traill, H. D.. *Central Government*. London: Macmillan and Co., 1892.
+
+UK Parliament. “Parliament: The political institution.” [http://www.parliament.uk/about/history/institution.cfm](http://www.parliament.uk/about/history/institution.cfm) (accessed 4 October 2008).
+
+Wikipedia. “Parliament of England.” [http://en.wikipedia.org/wiki/Parliament\_of\_England](http://en.wikipedia.org/wiki/Parliament_of_England) (accessed 4 October 2008).
+
+Wikipedia. “Reform Act 1832.” [http://en.wikipedia.org/wiki/Reform\_Act\_1832](http://en.wikipedia.org/wiki/Reform_Act_1832) (accessed 21 October 2008).
+
+Williams, Kate. Interviewed by Rob Attar. *BBC History magazine – October 2008 – Part 2*. BBC History Magazine Podcast, October 10, 2008.

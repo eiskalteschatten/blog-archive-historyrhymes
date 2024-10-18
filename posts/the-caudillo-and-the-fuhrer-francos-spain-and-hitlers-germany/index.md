@@ -1,0 +1,98 @@
+[![Franco and Hitler](franco-hitler.jpg)](https://www.historyrhymes.info/2016/02/21/the-caudillo-and-the-fuhrer-francos-spain-and-hitlers-germany/franco-hitler/)
+
+Franco and Hitler  
+*Source: [NPR](http://www.npr.org/sections/parallels/2013/11/30/244995264/spains-been-in-the-wrong-time-zone-for-seven-decades)*
+
+Early in the twentieth century, a new and unique system of government emerged in Europe which would replace most of the age-old monarchies and eventually lead the continent into the modern era of democracy. Fascism, a form of extreme right-wing, nationalistic government controlled by a powerful dictator, rose in Europe from the ashes of the First World War. Germany and Spain were two of the predominant countries where fascism was nurtured and bought to life by vicious, yet charismatic men: Adolf Hitler with his National Socialist (Nazi) Party in Germany and Francisco Franco with his Falange Española Tradicionalista y de las Juntas de Ofensiva Nacional Sindicalista (FET y de las JONS) party in Spain. Both fascist dictators controlled repressive regimes which resulted in the deaths of millions of people. Although they were similar when it came down to their political practices and their view of capitalism and of communism, they were quite different in many respects regarding how the dictators came to and exercised power, their views of and stances in the Second World War and their relationships with other powers.
+
+It is well known that Hitler and his Nazi party eventually came to power through legal means in Germany, however, it is probably less well known how Franco came to power in Spain only a few years after Hitler’s seizure of power. It was on November 9, 1923 that Hitler’s first attempt at seizing power proved to be unsuccessful. The Beer Hall Putsch, or Hitlerputsch as it is known in German, was his first attempt to violently overthrow the unstable Weimar government by first overthrowing the Bavarian government in Munich. His so-called revolution was a total failure with Bavarian police easily able to prevent it.1 For his efforts, Hitler was tried for high treason and sentenced to five years of prison. He only ever served eight months of his sentence, however.2 After his time in prison, Hitler reestablished the Nazi party which had essentially been broken up after the Putsch, according to his own views. Part of this new organization included the idea that the best way to seize power would be through a constitutionally legal means. They ironically ran for elections in September 1930 and won by a “landslide” victory.3 In 1932, Hitler unsuccessfully ran for president against Paul von Hindenburg and in 1933, won the chancellorship from which position he was able to consolidate his power. Other than the Beer Hall Putsch, the Nazi take over of the government was relatively non-violent when compared to that of Franco’s seizure of power.
+
+As with Hitler, Franco used a period of instability in the incumbent government to take control of the country, however, unlike the situation in Germany, Franco’s rebellion led to years of Civil War in Spain. On July 17, 1936, the uprising, which had been in the planning stages for quite sometime, began when, upon the orders of General Franco, the military began to rebel in garrisons throughout Spain.4 The eventual result was the destruction of the Spanish Republic and the placement of Franco as absolute head of state. Both Hitler and Franco came to power by different means, however, they were both inarguably the center of power in their regimes which is reflected by how their governments exercised that power.
+
+A key difference between the way Franco ran Spain and the way Hitler controlled Germany includes the way in which they were able to motivate their populations to rally around a certain cause. Without Hitler and his flamboyant personality, even with another dictator in his place, the Holocaust, for example, may not have happened to the same extent that it did. He managed to motivate and mobilize a down-trodden post-World War I Germany into a very proud, nationalistic force which possessed unrealistic goals of thousand-year empires. A possible explanation for this ‘Nazi-fanaticism’ could be explained by taking the cult of people that followed Hitler’s personality, which formed well before he had even taken power, into consideration.5 Franco, on the other hand, never really had such a cult. The National Socialist Party had over 850,000 members before it came to power, whereas the FET y de las JONS Party only had about ten thousand.6 It was not until his coup was successful after the Civil War that people really began to rally around him, although never to the same extent as Hitler. Whereas Nazism was almost bordering on “political religion,”7 Franco’s FET y de las JONS Party had nowhere near the fanatic enthusiasm. Another key factor to consider in the ability of the dictators to influence and motivate their populace is the condition of the pre-fascist governments of both Spain and Germany. Despite the defeat of Germany in the First World War, at the time Hitler took power Germany was a modern state with well-lubricated systems for accomplishing political agendas. The Spanish republic which preceded Franco’s coup was, on the other hand, far less developed both economically and socially making Franco’s regime far less efficient than Hitler’s.8 Another reason that should be examined when differentiating the two dictators and their regimes is their political goals.
+
+When Nazi Germany is brought to mind, it is often directly associated with the Holocaust and the extermination of other ‘undesirables’ as well as the Second World War; when Franco’s regime is thought about, it is often associated with imperialistic views and bringing about a renaissance of the Spanish Empire. Why these are the associations made when these two regimes are thought about is due to their ultimate political agendas. As he wrote about in his book, Mein Kampf, Hitler’s ultimate goals were an ethnic cleansing of Europe and the establishment of an empire that would last a thousand years. He also looked at Germany as being the last line of defense for Western Europe against Russian bolshevism.9 Franco’s external ambitions were more towards the reestablishment of the lost Spanish Empire and the rehabilitation of Spain’s reputation and image in the international scene. This can clearly be seen by his demands on Hitler for Spain’s old colonies in Northern Africa in return for entering World War II on the side of the Axis powers.
+
+No one would argue Hitler’s involvement in World War II, however, Franco was far less involved. That is known for sure, however, depending on which source is consulted, opinions vary as to whether he was not involved simply because Spain’s economy and military were not up to the task or because Franco did not really want to enter into the war. George Hills argues in his book, Franco: The Man and His Nation, that Franco continually — and artfully — evaded Hitler’s demand that he enter the war on the side of the Axis powers because he was convinced that Britain could never possibly be defeated.10 Franco’s stance on Britain made Hitler feel “like a Jew.”11 Hills also mentions that Franco’s generals and staff were both divided on the issue of being pro-Allies or pro-Axis and that he did not want to create a chasm in his delicate new government.12 This, according to Hills, infuriated Hitler on numerous occasions because Hitler wanted Franco to come into the war on the side of the Axis powers to close off the Gibraltar Strait to deny the Allies access to the Mediterranean Sea. Contradictory to Hills’ arguments, Paul Preston, in his book Franco: A Biography, says that Franco was confident of a quick defeat of Britain and that Spain was excited to help, but Germany was not thrilled about the idea.13 Preston goes even so far as to say that Hitler did not want Spain to become involved in the war.14 Carlton J. H. Hayes, American ambassador to Spain from 1942 until 1945, took the middle ground when he wrote in his memoirs that “Spain did not wish an Axis victory but it most ardently wished the defeat of Russia” and Russian Communism.15 Both of the books by Hills and Preston seem to be backed by good sources, however, time may play a key role here. Hills wrote his book in 1967, whereas Preston composed his in 1994.
+
+One issue, however, that neither author denies is that Hitler and Franco met for the first time Hendaye on October 23, 1940 where they discussed the war. The meeting was to take place at 14:00, however, Franco’s train arrived late to the meeting. Hills argues that Franco did it intentionally because he wanted to put Hitler at a “psychological disadvantage from the start.”16 Again, Preston disagrees. He claims that a number of factors, including an attempted assassination, delayed Franco’s arrival at the station in Hendaye.17 When discussing this topic, this is really the only point of contention between the two authors. They both agree that Spain entering the war was discussed and that both leaders came away from the meeting unsatisfied. A general agreement was made that Germany would send much needed military and food supplies to Spain and that Spain would enter the war on Germany’s side at a later, unspecified date.18 Hitler wanted Spain to enter the war or at least to side with the Axis powers, but Franco remained non-committal and just made unrealistic demands on the Germans — such as France’s former colonies in North Africa and massive amounts of food — in exchange for entering the war. It is debatable whether such extravagant demands were made as an excuse not to enter the war or simply because Spain actually needed some of them such as the massive amounts of food since its population was on the brink of starvation. It is this factor that setup relations between Spain and Britain and the United States which used food shipments to help convince Spain to stay neutral.
+
+The relationship between Spain and the Allied powers — particularly with Britain and the United States — was, needless to say, far better than that with Germany with whom the Allied powers were at war. Again, the sources differ as to whether this was because Franco had a fascination with the imperial ambitions of Britain (Hills), or because Franco feared the United States coming into the war on the Allied side (Preston), or because the American government, through the American red cross, and the British government were both sending food stuffs and other limited aid to Spain.19 In return, Franco sent Britain raw materials which were not useful for him.20 Hitler, on the other hand, being in control of a government adamantly at war with Britain and the United States, had little or no relationship with the Allied powers other than that which is inherently derived from war. This point, among other conflicts, caused friction between the two dictators. Their relationships with the Soviet Union, however, painted quite a different picture.
+
+Both men were extraordinarily anti-communist and Hitler’s invasion of the Soviet Union in 1941 fully met with Franco’s approval. During the Spanish Civil War, the Soviet government had sent aid in return for the republican government shipping “its entire gold reserve to Moscow for ‘safekeeping.’”21 This, very naturally, did not please Franco because not only did the Soviet government help his enemies, but after the Civil War, refused to return the gold leaving the new Spanish government broke and in dire straits. Of course this set the stage for sour relations between Francoist Spain and the Soviet Union for years to come. After the Second World War, the Soviet Union would bar entry for Spain into the United Nations with Joseph Stalin ironically calling Franco a “totalitarian and aggressor.”22 As the war began, Hitler concluded a non-aggression pact with the Soviet Union, but, as can be seen by Hitler’s invasion of the Soviet Union, he did not intend to abide by it permanently. The situation for both dictators was different, however, with Benito Mussolini’s Italy.
+
+While there was constant strife between Germany and Spain about their relations with the Allies and there was agreement that both countries despised the communist Soviet Union, the relationship between Germany, Spain and Italy was a much better situation. This is, however, unsurprising considering all three of the countries were ruled by fascist dictators. Hitler and Mussolini — both of whom were the key players in the Axis powers — were at war with the Allied powers while Spain seemed to be the ‘short leg of the fascist stool.’ Although Franco was a dictator in control of a fascist government, it was an unstable government which could contribute nothing to the agendas of either Hitler’s or Mussolini’s regimes. Despite this, Franco maintained a good relationship with Mussolini — and to some degree with Hitler as well — because of their common policies on governing and their views about the communist and capitalist enemy.
+
+Political enemies, or those considered to be enemies of the state or of the ideologies of the regimes, were in eliminated by both Hitler and Franco. In both regimes, this included communists, capitalists or anyone who was anti-fascist or simply against Hitler or Franco. While very similar, there are, however, some key differences. First of all, Hitler is well known for his role in the extermination of European Jews, but what is less well known is that Franco actually helped Jews escape from imprisonment or execution by the Nazis.23 Another major distinguishing factor is that Hitler made it a part of Nazi policy to ‘cleanse’ Germany and indeed Europe, whereas Franco used imprisonment or death as punishment strictly for his political enemies.24 That is not to say that Franco was more sympathetic or more humane than Hitler in anyway. Upon visiting Spain to prepare security for the meeting between Hitler and Franco in Hendaye, Heinrich Himmler, head of the German Schutzstaffel (SS), mentioned to Franco that even he was amazed about how many prisoners were taken and how many executions were performed by the Franco government after the Civil War.25 The prisons were almost bursting with people. Many of Franco’s political prisoners were also sentenced to sometimes fatal hard labor under the conditions of “redemption through work” and in fact much of post-Civil War Spain was rebuilt by these prisoners.26 This “redemption through work” policy has eerie parallels to the German concentration and death camps adorned with the words “Arbeit macht frei” (“work makes freedom”). According to Franco himself, in the six year period between 1939 and 1945, almost two-hundred thousand people were killed by the government with almost ten thousand people killed per one that was killed by Mussolini in Italy.27 These figures are certainly not comparable to the millions killed by the Nazi regime, however, they are not to be taken lightly either.
+
+Neither Adolf Hitler nor Francisco Franco were men who should have been in power. Their regimes were brutal and their methods deadly. Together, they exterminated millions of people and were responsible for destruction on a massive scale caused by many years of war. Political enemies stood no chance under their rule with their merciless executions and hard labor programs. In these ways, both dictators were quite similar, but their irreconcilable differences of the details and execution of policy, their views of and stances in the Second World War and their differing relationships with other powers were often the cause of great friction between the two leaders. Hitler once said of his meeting with Franco in Hendaye that “rather than go through that again, I would prefer to have three or four teeth taken out.”28 This, however, was met with contradictory measures taken by Hitler such as awarding Franco das goldene Grosskreuz des deutschen Adlerordens, or the Golden Grand Cross of the Order of the German Eagle for his “decisive action in Tangier” and for his belligerence during World War II.29 It is difficult to determine exactly how the two leaders saw each other, but the general impression is that Franco looked up to Hitler while Hitler looked down on Franco. Both Hitler and Franco were men to be feared for sure because, while they were different in many regards, they were also quite similar.
+
+* * *
+
+1 The History Place, “Hitler’s Rise to Power,” http://www2.dsu.nodak.edu/users/dmeier/Holocaust/hitler.html (accessed December 6, 2009).  
+2 *Ibid*.  
+3 *Ibid*.  
+4 Encyclopedia Britannica, “Spanish Civil War,” http://www.britannica.com/EBchecked/topic/558032/Spanish-Civil-War.  
+5 Ian Kershaw, “Hitler and the Uniqueness of Nazism,” *Journal of Contemporary History* 39 (April, 2004): 251.  
+6 *Ibid*., 248.  
+7 *Ibid*., 250.  
+8 *Ibid*., 249.  
+9 *Ibid*., 247.  
+10 George Hills, *Franco: The Man and His Nation* (New York: The MacMillan Company, 1967), 340.  
+11 *Ibid*., 347.  
+12 *Ibid*., 340.  
+13 Paul Preston, *Franco: A Biography* (New York: BasicBooks, 1994), 374.  
+14 *Ibid*., 393-394.  
+15 Carlton J.H. Hayes, *Wartime Mission in Spain: 1942-1945* (New York: The MacMillan Company, 1945), 31.  
+16 Hills, 345.  
+17 Preston, 394. See footnote.  
+18 Hills, 347.  
+19 Willard L. Beaulac, *Franco: Silent Ally in World War II* (Carbondale, IL: Southern Illinois University Press, 1986), 22.  
+20 Hills, 340.  
+21 Beaulac, 39.  
+22 *Ibid*., 208.  
+23 Chaim U. Lipschitz, *Franco, Spain, the Jews, and the Holocaust* (New York: Ktav Publishing House, Inc, 1984), 3-4.  
+24 Kershaw, 244.  
+25 Preston, 380.  
+26 Hills, 331.  
+27 Vincent Navarro, CommonDreams.org, “The Deafening Silence About Franco’s Genocide,” http://www.commondreams.org/views06/0908-32.htm (accessed December 2, 2009).  
+28 Preston, 399.  
+29 *Ibid*., 375.
+
+* * *
+
+### Bibliography
+
+**Primary Sources**  
+Hayes, Carlton J.H. *Wartime Mission in Spain: 1942-1945.* New York: The MacMillan  
+Company, 1945.
+
+National Security Council. *A Report to the National Security Council by the Secretary of State  
+on United States Policy Toward Spain.* Washington, D.C.: GPO, 1947.
+
+**Secondary Sources**  
+Beaulac, Willard L. *Franco: Silent Ally in World War II.* Carbondale, IL: Southern Illinois  
+University Press, 1986.
+
+Encyclopedia Britannica. “Spanish Civil War.” [http://www.britannica.com/EBchecked/  
+topic/558032/Spanish-Civil-War](http://www.britannica.com/EBchecked/
+topic/558032/Spanish-Civil-War).
+
+Hills, George. *Franco: The Man and His Nation.* New York: The MacMillan Company, 1967.  
+Kershaw, Ian. “Hitler and the Uniqueness of Nazism.” *Journal of Contemporary History* 39  
+(April, 2004): 239-254.
+
+The History Place. “Hitler’s Rise to Power.” [http://www2.dsu.nodak.edu/users/dmeier/  
+Holocaust/hitler.html](http://www2.dsu.nodak.edu/users/dmeier/
+Holocaust/hitler.html) (accessed December 6, 2009).
+
+Lipschitz, Chaim U. *Franco, Spain, the Jews, and the Holocaust.* New York: Ktav Publishing  
+House, Inc, 1984.
+
+Navarro, Vincent. CommonDreams.org. “The Deafening Silence About Franco’s Genocide.”  
+[http://www.commondreams.org/views06/0908-32.htm](http://www.commondreams.org/views06/0908-32.htm) (accessed December 2, 2009).
+
+Preston, Paul. *Franco: A Biography*. New York: BasicBooks, 1994.
+
+Rich Jr, S. Grover. “Franco Spain: A Reappraisal.” Political Science Quarterly 67 (September,  
+1952): 378-398.
