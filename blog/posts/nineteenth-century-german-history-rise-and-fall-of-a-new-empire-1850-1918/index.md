@@ -7,7 +7,7 @@ By midcentury a fairly clear picture was beginning to emerge that unification of
 
 Born of noble birth in Prussia and destined for politics, Bismarck began his political career in relative obscurity, but rose through the ranks at a rapid pace. During the Revolution of 1848, he founded a conservative political party called the *Kreuzzeitungspartei* which he used as a springboard to launch his political ambitions. Only three years later, in 1851, he was made the Prussian ambassador to the German *Bundestag* in Frankfurt. He served this position until 1859 when he was made ambassador to Russia at St. Petersburg and, for a short time in 1862, ambassador to France.40 1862 proved to be a pivotal year for both Bismarck’s career and for Germany itself.
 
-[![Otto von Bismarck as Prime Minister.](Otto+von+bismarck.jpg "Otto von Bismarck as Prime Minister")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2010/04/Otto+von+bismarck.jpg?ssl=1)
+[![Otto von Bismarck as Prime Minister.](Otto%2Bvon%2Bbismarck.jpg "Otto von Bismarck as Prime Minister")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2010/04/Otto%2Bvon%2Bbismarck.jpg?ssl=1)
 
 Otto von Bismarck as Prime Minister.  
 *Source: [Wikipedia](http://en.wikipedia.org/wiki/File:Otto%2Bvon%2Bbismarck.jpg)*
@@ -25,7 +25,7 @@ War between the two major powers in German-speaking Europe was almost unavoidabl
 
 Before it was possible to establish a new German Empire under Prussian leadership, Bismarck needed to get rid of the threat which France would pose should Germany be unified.50 He believe Prussia could engage France in a war and win, however, this was not a very popular opinion and would put his political position at stake which he was no willing to do. Instead, he looked for a way to induce the French to attack Prussia. This lucky break came in 1870 when a relative of the King Wilhelm’s, Leopold, ascended the Spanish throne. Napoleon III felt surrounded and as such sent an ambassador to King Wilhelm to convince him to withdraw his support from the new Spanish king. Reluctantly, Wilhelm complied, but was not willing to comply to other demands made by the French.51 In a telegram, which would later be known as the EMS Telegram, the King explained to Bismarck what had taken place in the meeting between himself and the French ambassador. Bismarck saw his opportunity. He leaked a slightly edited version of the telegram to the German press and also conveniently leaked a French translation of it.52 His trap worked. Napoleon, enraged by this, mobilized troops to go to war and, on July 19, 1870, declared war on Prussia. The war resulted in a major defeat for France. On September 2, 1870, France surrendered and Napoleon III was taken into Prussian custody. France was plunged yet again into chaos and the French threat against German unification was eradicated.
 
-[![Proclamation of the German Empire](Reichsgründung1871-AW.jpg "Proclamation of the German Empire")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2010/04/Reichsgründung1871-AW.jpg?ssl=1)
+[![Proclamation of the German Empire](Reichsgr%C3%BCndung1871-AW.jpg "Proclamation of the German Empire")](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2010/04/Reichsgr%C3%BCndung1871-AW.jpg?ssl=1)
 
 Proclamation of the German Empire January 18, 1871.  
 *Source: [Wikipedia](http://en.wikipedia.org/wiki/File:Reichsgründung1871-AW.jpg)*
