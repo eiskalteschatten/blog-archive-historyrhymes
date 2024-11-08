@@ -19,7 +19,7 @@ Ludwig became King of Bavaria upon his father’s death on October 13, 1825. He 
 
 At the opening of his reign, King Ludwig’s policies were overwhelmingly liberal. Just a month and a half after his ascension to the throne, he lifted the censorship of the press and gave them more freedom — a feat none of his predecessors would have dreamed about doing. In 1826, he had the Ludwig-Maximilian University moved from Landshut to its current home in Munich. He was also a strong supporter of the arts and of Bavarian culture. Throughout his reign, he worked to reverse [his father’s secularization policies](https://www.historyrhymes.info/2013/01/26/kings-of-bavaria-king-maximilian-i-joseph/) by re-erecting monasteries and returning confiscated property to the Church.
 
-[![Former King Ludwig I ca. 1860](484px-Ludwig_I._König_von_Bayern_Arround_1860.jpg)](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2013/03/484px-Ludwig_I._König_von_Bayern_Arround_1860.jpg?ssl=1)
+[![Former King Ludwig I ca. 1860](484px-Ludwig_I._K%C3%B6nig_von_Bayern_Arround_1860.jpg)](https://i0.wp.com/www.historyrhymes.info/wp-content/uploads/2013/03/484px-Ludwig_I._K%C3%B6nig_von_Bayern_Arround_1860.jpg?ssl=1)
 
 Former King Ludwig I ca. 1860  
 *Source: [Wikipedia](http://commons.wikimedia.org/wiki/File:Ludwig_I.,_König_von_Bayern_Arround_1860.jpg)*

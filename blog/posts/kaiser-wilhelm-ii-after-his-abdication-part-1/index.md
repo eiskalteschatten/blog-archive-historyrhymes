@@ -9,7 +9,7 @@ Kaiser Wilhelm II abdicated in November 1918 at the end of the First World War b
 
 In late 1918, uprisings in Berlin and other cities throughout the empire as well as mutiny within the German Imperial Navy took him and his government by surprise. [The German Revolution of 1918-1919](https://en.wikipedia.org/wiki/German_Revolution_of_1918%E2%80%931919) had begun. 
 
-<figure><a href="https://www.historyrhymes.info/?attachment_id=5509"><img loading="lazy" decoding="async" src="NotaDeAbdicaciónDelKaiser1918.png" alt="Abdication Statement of Wilhelm II"></a><figcaption>Abdication Statement of Wilhelm II<br><em>Source: <a href="https://en.wikipedia.org/wiki/File:NotaDeAbdicaci%C3%B3nDelKaiser1918.png" target="_blank" rel="noreferrer noopener">Wikipedia</a></em></figcaption></figure>
+<figure><a href="https://www.historyrhymes.info/?attachment_id=5509"><img loading="lazy" decoding="async" src="NotaDeAbdicacio%CC%81nDelKaiser1918.png" alt="Abdication Statement of Wilhelm II"></a><figcaption>Abdication Statement of Wilhelm II<br><em>Source: <a href="https://en.wikipedia.org/wiki/File:NotaDeAbdicaci%C3%B3nDelKaiser1918.png" target="_blank" rel="noreferrer noopener">Wikipedia</a></em></figcaption></figure>
 
 As news of these occurrences reached the Kaiser, he was at the Imperial Army headquarters in Spa, Belgium. His first reaction was to reject any notion of his abdication, but as the situation started to spiral out of control, he tried to find a way to abdicate the imperial crown while still retaining the Prussian crown. However, since both crowns were linked in the constitution there was no way to give up one without the other. 
 
